@@ -1,3 +1,3 @@
  ![](https://imgur.com/BaaQ6A6.png) <p align="center"> ![](https://komarev.com/ghpvc/?username=undeadlost&color=8b6a5b&label=✄) </p> <p align="center"> ![art: 6V85JrSK9Pm5fuQ on twitter](https://64.media.tumblr.com/f52938c51eecd4139f814ef9d5b73fe2/29a06502294f959f-50/s1280x1920/6bde48cb740182e88bcd8d7479e399424c37d86d.gifv) </p> 
- ![](https://imgur.com/BaaQ6A6.png) <p align="center"> 🩹[strawpage](https://earmuncher.straw.page)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[neospring](https://neospring.org/@cannib4l)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[rentry](https://rentry.co/IMMORT4LITY)🩸 <p align="center"> 
+ ![](https://imgur.com/BaaQ6A6.png) <p align="center"> 🩹[pronounpage](https://en.pronouns.page/@CANN1BAL)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[neospring](https://neospring.org/@cannib4l)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[rentry](https://rentry.co/IMMORT4LITY)🩸 <p align="center"> 
   ![](https://imgur.com/BaaQ6A6.png)
