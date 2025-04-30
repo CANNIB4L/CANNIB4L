@@ -1,6 +1,6 @@
- ![](https://imgur.com/BaaQ6A6.png) <p align="center"> ![](https://komarev.com/ghpvc/?username=undeadlost&color=264b74&label=✄) </p> <p align="center"> ![art: 6V85JrSK9Pm5fuQ on twitter](https://files.catbox.moe/p1uh49.png) </p> 
+ ![art: 6V85JrSK9Pm5fuQ on twitter](https://i.postimg.cc/fRTyMm3c/top.png) </p> <p align="center"> ![](https://komarev.com/ghpvc/?username=undeadlost&color=5A5A5A&label=✄) </p> 
  ![](https://imgur.com/BaaQ6A6.png) <p align="center"> 🩹[pronoun page](https://en.pronouns.page/@CANN1BAL)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[neospring](https://neospring.org/@cannib4l)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[rentry](https://rentry.co/HEAV3NSAYS)🩸 <p align="center">
- ![https://files.catbox.moe/3o2xlo.webp](https://files.catbox.moe/ezgc5k.png)
+ ![https://files.catbox.moe/3o2xlo.webp](https://i.postimg.cc/RVTqrX0C/mid.png)
 
 dni:
 
@@ -10,4 +10,4 @@ byi:
 
 english/french/spanish only, slow, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated, interact w me pls!!!, [click 4 ships and interests](https://rentry.co/UNDY1NGDEVOTION), hyperfixations change alot, beware of int status, repspect dnis, hides freely
 
-![](https://files.catbox.moe/3o2xlo.webp)
+![https://files.catbox.moe/3o2xlo.webp](https://i.postimg.cc/4xLdyytr/btm.png)
