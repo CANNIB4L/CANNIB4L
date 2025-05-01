@@ -8,6 +8,6 @@ basic dni, 16 and under, scaranation, toxic=cool, nu:carnival fans, ybc fans, ds
 
 byi:
 
-english/french/spanish only, I'm a [system](https://dissociation-station.carrd.co/), slow, abbreviations of words, some of our alters also partake in [age-regression](https://whatisregression.carrd.co/) tell me if u need tonetags, everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated, interact w me pls!!!, [click 4 ships and interests](https://rentry.co/UNDY1NGDEVOTION), hyperfixations change alot, beware of int status, respect dnis, hides freely, our host is a 2time alter
+english/french/spanish only, I'm a [system](https://dissociation-station.carrd.co/), slow, abbreviations of words, some of our alters also partake in [age-regression](https://whatisregression.carrd.co/),tell me if u need [tonetags](https://toneindicators.carrd.co/), everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated, interact w me pls!!!, [click 4 ships and interests](https://rentry.co/UNDY1NGDEVOTION), hyperfixations change alot, beware of int status, respect dnis, hides freely, our host is a 2time alter
 
 ![https://files.catbox.moe/3o2xlo.webp](https://i.postimg.cc/4xLdyytr/btm.png)
