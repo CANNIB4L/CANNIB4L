@@ -4,7 +4,7 @@
 
 dni:
 
-basic dni, 16 and under, scaranation, toxic=cool, nu:carnival fans, ybc fans, dsmp fans, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, weird fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, twotime haters, pantalone haters, cat haters, if you think agere is a kink, to accuse us of faking our OSDD (we were diagnosed), whispering me for a skin
+basic dni, 15 and under, scaranation, toxic=cool, nu:carnival fans, ybc fans, dsmp fans, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, weird fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, twotime haters, pantalone haters, cat haters, if you think agere is a kink, to accuse us of faking our OSDD (we were diagnosed), whispering me for a skin
 
 byi:
 
