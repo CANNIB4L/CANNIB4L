@@ -1,5 +1,5 @@
  ![art: 6V85JrSK9Pm5fuQ on twitter](https://i.postimg.cc/fRTyMm3c/top.png) </p> <p align="center"> ![](https://komarev.com/ghpvc/?username=undeadlost&color=5A5A5A&label=✄) </p> 
- ![](https://imgur.com/BaaQ6A6.png) <p align="center"> 🩹[pronoun page](https://en.pronouns.page/@CANN1BAL)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[neospring](https://neospring.org/@cannib4l)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[rentry](https://rentry.co/HEAV3NSAYS)🩸 <p align="center">
+ ![](https://imgur.com/BaaQ6A6.png) <p align="center"> 🩹[pronoun page](https://en.pronouns.page/@CANN1BAL)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[neospring](https://neospring.org/@cannib4l)ㅤㅤㅤ ㅤㅤ ☆ㅤ ㅤㅤ ㅤㅤ[rentry](https://rentry.co/debtedgambler)🩸 <p align="center">
  ![https://files.catbox.moe/3o2xlo.webp](https://i.postimg.cc/RVTqrX0C/mid.png)
 
 dni:
