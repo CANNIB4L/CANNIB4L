@@ -8,6 +8,6 @@ basic dni, 15 and under, scaranation, toxic=cool, nu:carnival fans, ybc fans, ds
 
 byi:
 
-english/french/spanish only, I'm a [system](https://dissociation-station.carrd.co/), slow, abbreviations of words, some of our alters also partake in [age-regression](https://whatisregression.carrd.co/),tell me if u need [tonetags](https://toneindicators.carrd.co/), everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated, interact w me pls!!!, [click 4 ships and interests](https://rentry.co/UNDY1NGDEVOTION), hyperfixations change alot, beware of int status, respect dnis, hides freely, our host is a 2time alter
+english/french/spanish only, I'm a [system](https://dissociation-station.carrd.co/), slow, abbreviations of words, some of our alters also partake in [age-regression](https://whatisregression.carrd.co/),tell me if u need [tonetags](https://toneindicators.carrd.co/), everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated, interact w me pls!!!, [click 4 ships and interests](https://rentry.co/UNDY1NGDEVOTION), hyperfixations change alot, beware of int status, respect dnis, hides freely, our host is a [chance](https://forsaken2024.fandom.com/wiki/Chance) alter
 
 ![https://files.catbox.moe/3o2xlo.webp](https://64.media.tumblr.com/8acf9a316d800a963ac7f79a6984ae3f/01173f22f3f812ae-63/s2048x3072/0afa13eb64cbea1343ef5287830b2a5d1d7cb756.pnj)
